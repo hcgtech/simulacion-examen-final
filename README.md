@@ -11,5 +11,5 @@
    
   
    ### Presentaciones sobre Microeconomía Provincial.
-   [[Presentaciones](MODIFICA - AQUI VA LA DIRECCION COMPARTIDA DEL ARCHIVO)]
+   [[Presentaciones](https://gamma.app/docs/El-Problema-Raiz-de-las-PyMEs-en-Posadas-5l84e9tsn2dyk6w)]
    
